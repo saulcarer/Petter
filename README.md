@@ -1,2 +1,1 @@
-# petter
-Over top all crypto
+WA.SA soft & hardware research center. 
